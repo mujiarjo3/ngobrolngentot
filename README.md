@@ -1,2 +1,1 @@
-# ngobrolngentot
-ngobrolngentot
+# [ngobrolngentot](https://ngobrolngentot.pages.dev)
